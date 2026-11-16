@@ -1,0 +1,1 @@
+Download the .html and double click it and just observe field notes from nowhere project. An always changing never ending game, the hero is somewhere in space keeping notes, yet for some unknown, unexplainable reason he hallucinates. a line art aesthetics project game.
